@@ -1,0 +1,1 @@
+# motivation-and-direction-works-module-universal-card-compatibility-protocol
